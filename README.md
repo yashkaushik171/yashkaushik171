@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kaushikyash464@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/3o2yN4u](https://bit.ly/3o2yN4u)
+- 📄 [Know about me ](https://resume.io/r/GmL7Ne1f0)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
